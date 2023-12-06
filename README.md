@@ -1,5 +1,3 @@
-Pronouns : whatever you want.
-
 I'm here to learn ^^
 
 I'm currently learning multiple code related subjects.\
